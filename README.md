@@ -11,4 +11,5 @@ To encourage students for participation in co-curricular and cultural activities
 ---
 
 ### **Day 1- Orientation and welcome**
-- Inauguration ceremony with principal Dr. Sejijpal Singh and gives introduction to the GNDEC vision, misson and legacy and the day start with path and sabhad kirtan at gurdwara. Many cultural programmes are performed by senior's.
+- The day start with the path and sabhad kirtan at gurdwara and then Inauguration ceremony with principal Dr. Sejijpal Singh.His lecture made us that we are the part of this College earlier.
+Then the HOD of applied science Dr. Harpreet kaur grewal mam gives speech on GNDEC vision and legacy and gives Best wishes for our new journey in the college.
