@@ -29,28 +29,28 @@ Special Note by dr.kulwinder singh maan:
 -Introduction to departments, and curriculum.
  
 **English proficiency test**
--There is english proficiency test.This is the interactive session with the students focused on the english grammar and vocabulary 
+👉🏻There is english proficiency test.This is the interactive session with the students focused on the english grammar and vocabulary 
 
-**math profincey test**
+👉🏻**Maths profincey test**
 -solved logical regnioning and mathematics question 
 
-**Lecture by Dr. Arshdeep Singh**
+👉🏻**Lecture by Dr. Arshdeep Singh**
 -He gives lecture on **FOOD**
 Disscus the importance of balance diet for god physical and mental health and also share the tips to stay fit through good diet 
 
-**Scholarship awareness by BUDDY4STUDY**
+👉🏻**Scholarship awareness by BUDDY4STUDY**
 -Introduce the satya scholarship program 2025 They provide step by step guideline how to apply 
 
-**Causmic club session**
+👉🏻**Causmic club session**
 -We create a account on GitHub and learn the features of GitHub that Includes the control, repositories and markdown files 
 
 ## Day 3 Induction programme ##
 **2 August 2025**
 
-**Session by Dr. Jaswinder Singh**
+👉🏻**Session by Dr. Jaswinder Singh**
 -He established the science and maths lab and he was the first person to win and award from government of punjab.
  
-**Guest lecture Dr. Priya Darshni**
+👉🏻**Guest lecture Dr. Priya Darshni**
 -She talks about the physical facility is necessary for well being she also talkes about the happiness and reasons of unhappiness she told the reason of unhappiness due to lack of time effort is spend in acquiring physical facilities.
 
 ## Day 4 Induction programme ##
@@ -100,21 +100,24 @@ He spoke about the teachings of Guru Nanak Dev Ji
 .Gives platform to students to explore their interest beyond academics like music, dance art and many more.
 
 
+## Induction programme ##
+Day 7
 
 
+**Speaker DR. Parminder Singh student welfare**
+✔️He gives advice on to use our four years in our course wisely.
+✔️Enjoy life as well as do work properly work on how to manage time.
+✔️Identity your limitation and weakness and work on overcoming your weaknesses.
 
-Speraker DR. Parminder Singh student welfare 
-he gives advice on to use our four years in our course wisely
-Enjoy life as well as do work properly work on how to manage time 
-Identity your limitation and weakness and work on overcoming your weaknesses 
-NSS national service scheme 
-It is a organisation that is work for community services and social development 
-The moto of NSS not me , but you which reflects spirit of selfless service 
-Objective of NSS 
-To develop social responsibility among the students 
-To interdouce values of discipline and leadership 
+🌱NSS national service scheme 
+It is a organisation that is work for community services and social development.
+👉🏻The moto of NSS not me , but you which reflects spirit of selfless service.
 
-Digital marketing club 
-DMC degital marketing club 
-it is the creative and technical club for the students that focus on content creation, digital communication and to explore skills in photography and editing and vediography
+**Objective of NSS**
+✔️To develop social responsibility among the students 
+✔️To interdouce values of discipline and leadership 
+
+*"Digital marketing club*"
+DMC digital marketing club 
+-It is the creative and technical club for the students that focus on content creation, digital communication and to explore skills in photography and editing and vediography.
 
