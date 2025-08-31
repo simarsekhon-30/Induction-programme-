@@ -121,6 +121,6 @@ It is a organisation that is work for community services and social development.
 DMC digital marketing club 
 -It is the creative and technical club for the students that focus on content creation, digital communication and to explore skills in photography and editing and vediography.
 
+🆃🅷🅴 🆅🅸🆂🅸🅾🅽 🅾🅵 🅶🅽🅳🅴🅲 💫💫💫
 
-
-𝓽𝓸 𝓾𝓹𝓵𝓲𝓯𝓽 𝓘𝓷𝓭𝓲𝓪'𝓼 𝓻𝓾𝓻𝓪𝓵 𝓹𝓸𝓹𝓾𝓵𝓪𝓽𝓲𝓸𝓷 𝓫𝔂 𝓹𝓻𝓸𝓿𝓲𝓭𝓲𝓷𝓰 𝓽𝓮𝓬𝓱𝓷𝓲𝓬𝓪𝓵𝓵𝔂 𝓬𝓸𝓶𝓹𝓮𝓽𝓮𝓷𝓽 𝓪𝓷𝓭 𝓲𝓷𝓽𝓮𝓵𝓵𝓮𝓬𝓽𝓾𝓪𝓵𝓵𝔂 𝓿𝓲𝓽𝓪𝓵 𝓮𝓷𝓰𝓲𝓷𝓮𝓮𝓻𝓲𝓷𝓰 𝓪𝓷𝓭 𝓽𝓮𝓬𝓱𝓷𝓸𝓵𝓸𝓰𝔂 𝓰𝓻𝓪𝓭𝓾𝓪𝓽𝓮𝓼 𝓽𝓱𝓻𝓸𝓾𝓰𝓱 𝓱𝓲𝓰𝓱-𝓺𝓾𝓪𝓵𝓲𝓽𝔂, 𝓹𝓻𝓪𝓬𝓽𝓲𝓬𝓪𝓵𝓵𝔂-𝓯𝓸𝓬𝓾𝓼𝓮𝓭 𝓮𝓭𝓾𝓬𝓪𝓽𝓲𝓸𝓷, 𝓾𝓵𝓽𝓲𝓶𝓪𝓽𝓮𝓵𝔂 𝓮𝓷𝓼𝓾𝓻𝓲𝓷𝓰 𝓹𝓻𝓸𝓭𝓾𝓬𝓽𝓲𝓿𝓮 𝓬𝓪𝓻𝓮𝓮𝓻𝓼 𝓪𝓷𝓭 𝓯𝓸𝓼𝓽𝓮𝓻𝓲𝓷𝓰 𝓼𝓸𝓬𝓲𝓸𝓮𝓬𝓸𝓷𝓸𝓶𝓲𝓬 𝓹𝓻𝓸𝓰𝓻𝓮𝓼𝓼
+𝓽𝓸 𝓾𝓹𝓵𝓲𝓯𝓽 𝓘𝓷𝓭𝓲𝓪'𝓼 𝓻𝓾𝓻𝓪𝓵 𝓹𝓸𝓹𝓾𝓵𝓪𝓽𝓲𝓸𝓷 𝓫𝔂 𝓹𝓻𝓸𝓿𝓲𝓭𝓲𝓷𝓰 𝓽𝓮𝓬𝓱𝓷𝓲𝓬𝓪𝓵𝓵𝔂 𝓬𝓸𝓶𝓹𝓮𝓽𝓮𝓷𝓽 𝓪𝓷𝓭 𝓲𝓷𝓽𝓮𝓵𝓵𝓮𝓬𝓽𝓾𝓪𝓵𝓵𝔂 𝓿𝓲𝓽𝓪𝓵 𝓮𝓷𝓰𝓲𝓷𝓮𝓮𝓻𝓲𝓷𝓰 𝓪𝓷𝓭 𝓽𝓮𝓬𝓱𝓷𝓸𝓵𝓸𝓰𝔂 𝓰𝓻𝓪𝓭𝓾𝓪𝓽𝓮𝓼 𝓽𝓱𝓻𝓸𝓾𝓰𝓱 𝓱𝓲𝓰𝓱-𝓺𝓾𝓪𝓵𝓲𝓽𝔂, 𝓹𝓻𝓪𝓬𝓽𝓲𝓬𝓪𝓵𝓵𝔂-𝓯𝓸𝓬𝓾𝓼𝓮𝓭 𝓮𝓭𝓾𝓬𝓪𝓽𝓲𝓸𝓷, 𝓾𝓵𝓽𝓲𝓶𝓪𝓽𝓮𝓵𝔂 𝓮𝓷𝓼𝓾𝓻𝓲𝓷𝓰 𝓹𝓻𝓸𝓭𝓾𝓬𝓽𝓲𝓿𝓮 𝓬𝓪𝓻𝓮𝓮𝓻𝓼 𝓪𝓷𝓭 𝓯𝓸𝓼𝓽𝓮𝓻𝓲𝓷𝓰 𝓼𝓸𝓬𝓲𝓸𝓮𝓬𝓸𝓷𝓸𝓶𝓲𝓬 𝓹𝓻𝓸𝓰𝓻𝓮𝓼𝓼....
