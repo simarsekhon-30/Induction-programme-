@@ -1,4 +1,4 @@
-D# Induction-programme-at Guru Nanak Dev engineering college ludhiana induction report 
+## Induction-programme-at Guru Nanak Dev engineering college ludhiana induction report ##
 
 
 ----
@@ -58,15 +58,63 @@ Disscus the importance of balance diet for god physical and mental health and al
 
 -The day four is anchored by senior member of causmic club.
 
-session by priya darshani mam 
-he deliver a lacture of where we spend a time on 
-right understanding 
-relationship mutal happiness 
-physical facilities mutual prosperity 
-understanding happiness and unhappiness 
-key concept 
-happiness means hormony and synergy 
-unhappiness dishormany contadiction 
+**session by Priya darshani mam**
+-She delivered a lecture of where we spend or time in :
+1.Right understanding 
+2.Relationship (mutual happiness)
+3.Physical facility (mutual prosperity)
+
+** Understanding the meaning of happiness and unhappiness**
+.Happiness - Harmony 
+.Unhappiness - Disharmony or  contradiction 
+
+Shifting from happiness to excitement 
+
+**💫Important Notes of the lecture**
+. Happiness is not quantitive 
+.A state of well being, contentment and postive emotions 
+.Positive physiology
+
+## Day 6 Induction programme ##
+-General talks on personality development,team bilding, group discussion, quizzes.
+
+**Chief guest S.Gurcharan Singh Grewal (trustee of gndec)
+He spoke about the teachings of Guru Nanak Dev Ji 
+➡️kirat karo-Honest living 
+➡️Naam japo- Remembering the god
+➡️Vand chakko-sharing with others
+
+✔️ Talked about the issues faced by us
+⚪ Adjustment to new environment
+⚪ Difficulty in connecting with real life examples 
+
+✨. Talks about future scopes
+1. Strengthen in logical thinking 
+2. Knowing the coding language 
+3. Talked about the vision of gndec
+4. Its our duty to respect our teachers and mentors 
+
+**Dr.Lakhveer Singh khanna (incharge of CML)**
+👉🏻 Talks about the CML
+.The CML club is created to promote creativity, talent and. cultural values among students 
+.Gives platform to students to explore their interest beyond academics like music, dance art and many more.
 
 
+
+
+
+Speraker DR. Parminder Singh student welfare 
+he gives advice on to use our four years in our course wisely
+Enjoy life as well as do work properly work on how to manage time 
+Identity your limitation and weakness and work on overcoming your weaknesses 
+NSS national service scheme 
+It is a organisation that is work for community services and social development 
+The moto of NSS not me , but you which reflects spirit of selfless service 
+Objective of NSS 
+To develop social responsibility among the students 
+To interdouce values of discipline and leadership 
+
+Digital marketing club 
+DMC degital marketing club 
+it is the creative and technical club for the students that focus on content creation, digital communication and to explore skills in photography and editing and vediography
 
